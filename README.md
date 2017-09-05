@@ -1,2 +1,0 @@
-# sweatplant.github.io
-Pro
